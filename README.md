@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Nathaniel Rezell
-- 👀 I’m interested in ...
+- 👀 I’m interested in medicine, music, space, you name it!
 - 🌱 I’m currently studying Biomedical and Public Health Analytics at The Ohio State University!
 - 💞️ I’m looking to collaborate on any project that catches my eye!
 - 📫 How to reach me:
